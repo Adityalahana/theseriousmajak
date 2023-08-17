@@ -1,0 +1,2 @@
+# theseriousmajak.github.io
+anagad
